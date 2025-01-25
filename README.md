@@ -1,1 +1,1 @@
-# **Flipper Zero [rbknkt](t.me/rbknkt "rbknkt")**
+# **Flipper Zero [rbknkt](https://t.me/rbknkt "rbknkt")**
